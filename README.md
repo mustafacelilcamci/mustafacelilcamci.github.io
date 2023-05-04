@@ -1,2 +1,1 @@
-
-https://mustafacelilcamci.github.io/
+https://mustafacelil.github.io/
